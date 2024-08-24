@@ -1,6 +1,6 @@
 ⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂⁂
 
-**April Anne T. Amizola.** (✿◡‿◡)
+**April Anne T. Amizola.**
 
 **PSM Data Science student at Technological Institute of the Phillippines**
 
